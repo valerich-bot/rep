@@ -9,3 +9,5 @@
 ___
 jikjijj
 ~~kokokop~~
+*mjikjk
+*klklok
